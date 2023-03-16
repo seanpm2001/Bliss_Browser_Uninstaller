@@ -1,0 +1,1 @@
+🌳️🌐️❌️ The Bliss Browser uninstaller.
